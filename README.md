@@ -2,7 +2,7 @@
 - 👀 I’m interested in ...Data Analyst
 - 🌱 I’m currently learning ...B.Tech Information Technology
 - 💞️ I’m looking to collaborate on ...Data Analytics
-- 📫 How to reach me ...934505306 @WhatsApp , Email-ID : varshaanbu21@gmail.com
+- 📫 How to reach me ...9345053046 @WhatsApp , Email-ID : varshaanbu21@gmail.com
 
 
 
